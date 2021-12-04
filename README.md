@@ -1,5 +1,6 @@
 ### Hi there 👋
 I'm Praveen Shahani, an undergrad Mathematics student at Amity University.
+ 📫 You can reach to me through [LinkedIn](https://www.linkedin.com/in/praveen-shahani-a99906196/)
 
 
 <!--
