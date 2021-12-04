@@ -2,7 +2,7 @@
 I'm Praveen Shahani, an undergrad Mathematics student at Amity University.
 
 
- 📫 You can reach out to me through [LinkedIn](https://www.linkedin.com/in/praveen-shahani-a99906196/)
+ 📫 You can reach out to me on [LinkedIn](https://www.linkedin.com/in/praveen-shahani-a99906196/)
 
 
 <!--
