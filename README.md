@@ -1,6 +1,6 @@
 ### Hi, 
 ### I'm Praveen Shahani 👋
- I recently completed my undergrad in Mathematics student from Amity University Uttar Pradesh, India.
+ I recently completed my undergrad in Mathematics from Amity University Uttar Pradesh, India.
 
 I'm looking forward to working on new projects and would be happy to connect to you.
 
