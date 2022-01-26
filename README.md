@@ -6,6 +6,8 @@ I'm looking forward to working on new projects and would be happy to connect to 
 
 
  📫 You may choose to reach out to me on [LinkedIn](https://www.linkedin.com/in/praveen-shahani-a99906196/)
+ 
+ 
  ✨ You may choose to have a look at my [CV](https://github.com/PSha98/Resume)
 
 
