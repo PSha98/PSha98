@@ -1,6 +1,6 @@
 ### Hi, 
 ### I'm Praveen Shahani 👋
- I'm a Data Scientist in the Beverage Industry, open to collaborate in new, innnovative projects.
+ I'm a Data Scientist/Optimization Scientist in the Beverage Industry, open to collaborate in new, innnovative projects.
  
  📫 You may choose to reach out to me on [LinkedIn](https://www.linkedin.com/in/praveen-shahani-a99906196/)
  
